@@ -28,3 +28,7 @@ Death Rate can be reduced by various fold in terms of, Reducing by :
 
 3.) At the last end, Updating the blodd bank, to remove the delay of Blood suppy.
 
+\\\\\\\\\\\\\\\#########################################//////////////////
+-> Please Message up directly though Linkeidn, on my profile :  www.linkedin.com/in/pallav-shukla-484099140 
+Can share the code with and files with you.
+Thnaks. 😊
